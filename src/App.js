@@ -68,6 +68,12 @@ onto your books, with pen that bears no stain&nbsp;<br/>
       <h4>Notes</h4>
       <ol>
       	<li>The Greek text is taken from the edition of D.A.B. Caillau, which was reprinted in vol. 37 of the <em>Patrologia Graeca,</em> col. 470–71. No critical edition yet exists.</li>
+      	<li>The poem has also been translated into English by Peter Gilbert, and by John McGuckin.
+      		<ul>
+      			<li>Gilbert, Peter. 2001. <em>On God and Man: The Theological Poetry of St. Gregory of Nazianzus.</em> Popular Patristics Series. Crestwood, N.Y: St. Vladimir’s Seminary Press.</li>
+      			<li>McGuckin, J.A. 1995. Saint Gregory Nazianzen: Selected Poems. Oxford: SLG Press.</li>
+      		</ul>
+      	</li>
       	<li>For fuller comments on the poem, see Poulos, Alex. 2019. <em>Callimachus and Callimacheanism in the Poetry of Gregory of Nazianzus</em>. PhD Diss. (Catholic University of America; Washington, DC), pp. 87–91 (Available online <a href="https://mapoulos.files.wordpress.com/2019/08/poulos_callimachus-and-callimacheanism-in-the-poetry-of-gregory-of-nazianzus_2019-06-24.pdf">here</a>).</li>
       </ol>
       </Col>
