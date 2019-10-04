@@ -48,17 +48,17 @@ as equal to the high  Father in heaven.&nbsp;<br/>
 Foolish who worships not th’ incarnate Word,&nbsp;<br/>
 as equal to the heavenly Word on High,&nbsp;<br/>
 but cuts from Father’s might His Word, or else&nbsp;<br/>
-doth cut the Word from human shape, our breadth.&nbsp;<br/>
+severs the Word from human shape, our breadth.&nbsp;<br/>
 The Father’s Word was God, but made our man&nbsp;<br/>
 so that, with mortals mixed, He’d mix in God.&nbsp;<br/>
 A single god comprising both: a man, &nbsp;<br/>
 to make man into gods: have mercy, thou&nbsp;<br/>
-who art above the Wounded Word  on high.&nbsp;<br/>
+who dost remain the Wounded Word above.&nbsp;<br/>
 For you, no more– why seek from me the knowledge&nbsp;<br/>
 of that ineffable and holy mixture.&nbsp;<br/>
-Oh mortals, mind the boundaries your speech.&nbsp;<br/>
+Oh mortals, mind the bound'ries your speech!&nbsp;<br/>
 Should I persuade thee, that is all the better;&nbsp;<br/>
-yet if you stain your page with myriad lines &nbsp;<br/>
+yet if you'd stain your page with myriad lines, &nbsp;<br/>
 come here and I will scratch these letters few &nbsp;<br/>
 onto your books, with pen that bears no stain&nbsp;<br/>
       	</Col>
