@@ -60,7 +60,7 @@ Oh mortals, mind the bound'ries your speech!&nbsp;<br/>
 Should I persuade thee, that is all the better;&nbsp;<br/>
 yet if you'd stain your page with myriad lines, &nbsp;<br/>
 come here and I will scratch these letters few &nbsp;<br/>
-onto your books, with pen that bears no stain&nbsp;<br/>
+onto your books, with pen that bears no stain.&nbsp;<br/>
       	</Col>
       </Row>
       <Row>
