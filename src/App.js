@@ -56,7 +56,7 @@ to make man into gods: have mercy, thou&nbsp;<br/>
 who dost remain the Wounded Word above.&nbsp;<br/>
 For you, no more– why seek from me the knowledge&nbsp;<br/>
 of that ineffable and holy mixture.&nbsp;<br/>
-Oh mortals, mind the bound'ries your speech!&nbsp;<br/>
+Oh mortals, mind the bound'ries of your speech!&nbsp;<br/>
 Should I persuade thee, that is all the better;&nbsp;<br/>
 yet if you'd stain your page with myriad lines, &nbsp;<br/>
 come here and I will scratch these letters few &nbsp;<br/>
