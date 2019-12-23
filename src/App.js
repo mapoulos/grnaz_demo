@@ -53,7 +53,7 @@ The Father’s Word was God, but made our man&nbsp;<br/>
 so that, with mortals mixed, He’d mix in God.&nbsp;<br/>
 A single god comprising both: a man, &nbsp;<br/>
 to make man into gods: have mercy, thou&nbsp;<br/>
-who dost remain the Wounded Word above.&nbsp;<br/>
+who by those words are wounded yet again!&nbsp;<br/>
 For you, no more– why seek from me the knowledge&nbsp;<br/>
 of that ineffable and holy mixture.&nbsp;<br/>
 Oh mortals, mind the bound'ries of your speech!&nbsp;<br/>
